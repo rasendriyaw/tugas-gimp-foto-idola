@@ -1,0 +1,1 @@
+# tugas-gimp-foto-idola
